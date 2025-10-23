@@ -1,0 +1,2 @@
+# test
+obja[njavam kolegi
